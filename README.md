@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @martineiix
+- 👀 I’m interested in learn about anything
+- 🌱 I’m currently learning about Bot
+- 💞️ I’m looking to collaborate with everything
+- 📫 How to reach me @david.nara@hotmail.com
